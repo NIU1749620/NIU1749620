@@ -2,7 +2,7 @@
 - 👀 I’m interested in kkkkkkkkkkkkkkkkkkkkkkkkk
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on metal
-- 📫 How to reach me imposible
+- 📫 How to reach me: imposible
 - 😄 Pronouns: none
 - ⚡ Fun fact: none
 
